@@ -1,1 +1,1 @@
-# Jeux-vid-o
+# Jeux-vidéo
